@@ -18,6 +18,4 @@
 📫 How to reach me => You can reach me through my email (singhdivyansh441@gmail.com) ...
 
 
-Most Important!!
-I have worked with the private repo's most of the time . So visitor maybe think that I'm not consistent I can send you screenshot
-if you want to see in how many private repo's I'm working.
+
